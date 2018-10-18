@@ -1,1 +1,1 @@
-# KisBrigitta.github.io
+# kisbrigitta.github.io
